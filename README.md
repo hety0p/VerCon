@@ -38,6 +38,7 @@ These are the ones that support it openly and directly. There's also Bibfin, but
 Since Jibrish wanted me to remove my X because it has critical personal information of me (My face, location and my actual name), I cannot share my account again, but I can still show you the posts I re-posted and some of the accounts I follow to give you an idea of what type of account it is;
 
 Parts of my following list:
+
 <img width="600" height="489" alt="image" src="https://github.com/user-attachments/assets/64668f95-94dc-4be8-8193-2490a7c64220" />
 <img width="594" height="467" alt="image" src="https://github.com/user-attachments/assets/405e6ca5-90bf-4fc6-ba20-05de2166b974" />
 
