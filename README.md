@@ -7,6 +7,7 @@ I've been told by Jibirsh, that since he's read my request, he will just push th
 <img width="1080" height="899" alt="image" src="https://github.com/user-attachments/assets/a2bc0b3e-d251-487d-ac71-303b8bcbaef7" />
 
 I have also sent my X account (verified on X, conservative stances (i'll provide proof of that as well, you can see them by scrolling down)) to Jibrish, he said I should delete that message and he does not want me to doxx myself, so he wanted me to remove my personal information from the application proccess.
+
 //##########################################//
 
 Now I will be listing the parts of this message and the ways through which you will be able to verify me. If you want to read;
@@ -34,6 +35,7 @@ I'm Renko. I'm a 19 year old girl from Norway, I was born in USA therefore I'm a
 <img width="1080" height="320" alt="image" src="https://github.com/user-attachments/assets/42253e6b-0f50-427b-b73f-bd3eab2b5577" />
 
 These are the ones that support it openly and directly. There's also Bibfin, but he said he would only support the proccess conditional on my X showing conservative stances (which it does, but still this is an indirect support, not as clear and open as others)
+
 
 Since Jibrish wanted me to remove my X because it has critical personal information of me (My face, location and my actual name), I cannot share my account again, but I can still show you the posts I re-posted and some of the accounts I follow to give you an idea of what type of account it is;
 
