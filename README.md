@@ -46,7 +46,10 @@ Parts of my following list:
 
 (I do not only follow right wing news sources, though. I read both sides (not in a meme way) I follow CNN as well.
 
+
 Literally my most recent 3 reposts:
+
+
 <img width="604" height="303" alt="image" src="https://github.com/user-attachments/assets/34d70006-ba8c-4744-9449-ac399896c984" />
 <img width="589" height="620" alt="image" src="https://github.com/user-attachments/assets/b39751ca-3f0e-4ee9-9049-84e62b02cf49" />
 <img width="611" height="146" alt="image" src="https://github.com/user-attachments/assets/e2f2da41-8104-4a88-b6e5-b68b9187b1e2" />
