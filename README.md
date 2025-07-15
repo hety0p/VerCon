@@ -12,7 +12,9 @@ I have also sent my X account (verified on X, conservative stances (i'll provide
 Now I will be listing the parts of this message and the ways through which you will be able to verify me. If you want to read;
 
 1-) A brief summary of who I am and what type of consevative I am. (Jump to line 18)
+
 2-) A list of Admin/Moderatots who support my VerCon proccess (with screenshots) (Jump to line 20)
+
 3-) A collection of the screenshots of my reposts on X as well as some accounts I follow, I thought this is a good way to prove things I agree with, without doxxing my face or real life name (as Jib said) (Jump to line 36)
 
 I'm Renko. I'm a 19 year old girl from Norway, I was born in USA therefore I'm also American. I'm studying law at UIO. I do not think any single moral/political philosopy fully describes me, but I believe a form of right-wing libertarianism combined with conservatism would be the one that describes me the most accurately. I'm currently level 15 with a voice level of 5 in the server.
