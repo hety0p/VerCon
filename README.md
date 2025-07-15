@@ -55,4 +55,6 @@ Literally my most recent 3 reposts:
 <img width="611" height="146" alt="image" src="https://github.com/user-attachments/assets/e2f2da41-8104-4a88-b6e5-b68b9187b1e2" />
 
 
+I'm sorry, I didn't realize this is 4 kilobytes of VerCon application, I also sent 2 messages to Jibrish and Momoweeb, I hope you didn't get bored while reading this.
+
 Thank you for your time! :)
