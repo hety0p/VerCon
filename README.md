@@ -2,6 +2,8 @@
 
 Hello moderation team! I hope you guys are doing well!!
 
+I already have applied for VerCon through @Jibrish, he said it was a high effort application and you tend to return the favor in kind, but he said he needs a modmail regardless, therefore I'm writing this message.
+
 I've been told by Jibirsh, that since he's read my request, he will just push this straight to the "logs part", so I'm not sure if I should re-write the first parts of the request, but I will be writing them again, just in case you're not Jibrish who is reading this right now. 
 
 <img width="1080" height="899" alt="image" src="https://github.com/user-attachments/assets/a2bc0b3e-d251-487d-ac71-303b8bcbaef7" />
